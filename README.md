@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Joaocrk
+- 👀 I’m interested in Computer, Games, Musics, Sports, E-sports.
+- 🌱 I’m currently learning Html Css
